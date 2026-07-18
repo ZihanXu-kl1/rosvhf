@@ -6,959 +6,959 @@ TCL中央空调另一客服热线：(4 0 0 -6 7 6- 0 6 8 9)
 此外，TCL中央空调在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话(4 0 0 -6 7 6 -0 6 8 9)。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
 总的来说，如果您需要TCL中央空调的维修服务，可以直接拨打上述全国统一官方客服热线(4 0 0- 6 7 6-0 6 8 9)或所在地区的售后服务电话，以获取及时、专业的帮助。FGYYEVKIOOFJNJJ
 
-TCL中央空调24小时售后服务热线上线（（2026年07月17日最新公布）最新公告）
+TCL中央空调24小时售后服务热线上线（（2026年07月18日最新公布）最新公告）
 TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)
 TCL中央空调售后24小时客服热线：(4 0 0 -6 7 6- 0 6 8 9)
 TCL中央空调公司主营TCL中央空调维修 →TCL中央空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0- 6 7 6- 0 6 8 9)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，TCL中央空调服务承诺?.
-北京市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/86494a08f473eff4dd386ae533e10d4f0176e584
+北京市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/6a233cc358e61f579a5d485aad256a2b0536120a
 。
-南京市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/5b6a1bfdc5b56e50a89bcef094f35f778bbebef8
+南京市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/pagepaul8275/ynkbsd/commit/bf63f34e362aad4bf1d096237a5c5bd645c6f043
 。
-秦皇岛市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c98dd187caa64907389d0251348a31749256f95e
+秦皇岛市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/bea58eff3a5f05206bbf3eeb0469651741abc171
 。
-珠海市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/036c88cc3e09a24a42158155849b87422431878c
+珠海市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/7cedd2266a247cd95f02bdc6f6613efeed03cd5d
 。
-安康市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0d05e4f5c7e7896c866187f483bd5f34057c0789
+安康市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/aa4b5d24d6cf63ef8c3a2fc7036333ddf37ffd82
 。
-安庆市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9091b614714b4f1b2c63876a0a53723b6176b0bf
+安庆市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/34a65e3f5a3ee661462e7b8d171a2a8900c36f66
 。
-鞍山市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5d2851cdf1e8cc61ebc69d1b22cc6a1d711394f1
+鞍山市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/60d34d58679b168996a849d52ef6849e1bff2a36
 。
-安阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/a2585a91b1c4405b158e20308e24e5c7d358131e
+安阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/43b0acdd69019a3a41e0c46fb63228981ccc0b37
 。
-巴中市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0405b39fe9f09824ce2037ceac51a118968c2419
+巴中市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日正式推出），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/b0fd53688f80283e8ea8ab00dc12c0b5bd06b3b1
 。
-百色市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/4d5c853712f76f9c9d9a978179a2e5515f3fb5eb
+百色市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日官网推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/c1e610b04a97c9de45a3bb5f705a7800fb527b9d
 。
-蚌埠市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f843a4509ea397c7e4fff597d9a0f752c7068cb7
+蚌埠市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/210e50744171c6be326ed8e0dc0130299b930e8c
 。
-保定市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c9ff0e977272807c52cdce5dc114cf5344788774
+保定市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/03b6db88d6fe6e1a4c5e2fa140e82affcc081942
 。
-宝鸡市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d42fb5780d856718263c77095e13c84ed24c97c8
+宝鸡市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/deac9f0eb28c5a5ec15746072bb2e8737c330cc9
 。
-保山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fa9646f01d7609702c33ae35c5c4989b8336d696
+保山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/17a1e64c3da18529d43ed4164865bffc29a2ba5e
 。
-包头市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/683fb7fda677f8243efd30947486e8caf9645b59
+包头市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/88fd0219e84c405ed25865867f0b4f57f22d25a7
 。
-北海市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b2b899b446c4d3d74f2858f5237b41b7f97c5ebf
+北海市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/96f83496492c1a98500bbc2a3d495dc2f9d8844c
 。
-本溪市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/32c9b9b8831e5b29044306cbd1c619eb68698ae0
+本溪市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/573bf902a61c090fbb61abf4b02efc73208a23ab
 。
-滨州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/8537f2ea9209f7775d8ccfc2206117ec182f4942
+滨州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/b41d9ccb2772ea5cd43a94daf53dc92c928e1566
 。
-博罗市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/bce45087a460aa4f23829e40c6eceb8016c7c0bd
+博罗市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/4ba158d167aaf818384ea437afcf6640b21c6b35
 。
-沧州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d7ac6176077b01496599fc959d28fb9e74d4dcbe
+沧州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/4733bd1a71fbf56b51453bc0cb9af1de37436f05
 。
-长春市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b3fb4cea4bff53de33b33e2daf2ade58f85135f2
+长春市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/6827fc1dfe82a93b24120bdf16edc1d9d4cddec2
 。
-常德市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/024124a87d9402f9158577c5e7728201f124e452
+常德市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/bd843fa40e4b7855150e494bec7cbf9c2e90ff09
 。
-长葛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/345c9dc6bc967b8726f78091c7af0bf74ec18e8e
+长葛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/aaff7ec61540a01c0d2ba006f80682964d70301c
 。
-长沙市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/b1673b515c3e5aad73607cd3df4005f80e6fd81a
+长沙市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/a0942931a3d1e7f84a3c55c75ce4153b854f4fcf
 。
-常熟市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19a8ee2758a1bb26dbda023c884726bb18ef5f82
+常熟市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/d5a7c051ebb76a256513824dc3830d293dcf7466
 。
-长兴市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1687f6e59021b951836a49d3955a6d15eff72ba3
+长兴市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/5c5f9d4fe23fd5278af16d10027339b49b32aac0
 。
-长治市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6106d8893ba4439949f4fe6ff203acb3ffab8f0c
+长治市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/52b7be7e416692f28913e41341dc21fb67ab046e
 。
-常州市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e5e10a9a8ecdb56c96d0249a102e9c2843aafde7
+常州市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/37b5a9ec586d7ed92b1aa44c96b449933ee71b26
 。
-巢湖市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d053ca5b7c60920d513db5349159c0bc1ef3022c
+巢湖市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/243dfb83ed0c74461fd84831242f95c3e61b7fad
 。
-朝阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3051d05a81be0ee7c9790ebaca5f99dd829bffb7
+朝阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/76bb291fc593f0ed836b4797f74be3251391c202
 。
-潮州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c8f153326393cf88697ebbbadc216d4f89f35be0
+潮州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/6a9e7dee317c5f46e8ae6956dd6e363afe885806
 。
-郴州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2ed14357edfbd7c5a750a9d8b0ecf1c9b1db941a
+郴州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/6d08f0c1f63f22c92102721b8a30af9461c41e33
 。
-承德市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d0596c27fe9095fb751da99417ae3f99472ee877
+承德市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/66c2380128a9e55cffa071a6efd673ed1339d2db
 。
-成都市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/2cb14995c7c610e6a0400bf8c0ac5800dd1d3408
+成都市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/801874b810140464092ad1f408f0e8d5151d7fa8
 。
-池州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/02a99aa96f536bac3577eca6e4f43301d159fb0a
+池州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/504c80bb2ad9ace7b2048f9ffd82f79e740576ff
 。
-崇左市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/613bf917bcb889e561ef371397333e71195f8041
+崇左市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/b2b39ead00c5fca241f70b9ffa2638f573a6eef5
 。
-滁州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/8a74a388375de769ee9c9bea1ac57db5b2f513ac
+滁州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日全新更新），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/26aeb37c410cf68099754c81bc43a14bf8e5fbb1
 。
-慈溪市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/d7219a7462fba5fc253ac8d7aaf0240e8d7cba33
+慈溪市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/201873e64b325f570752846ce103a1606b90711c
 。
-大丰市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/higginssara654/gexwcz/commit/73513ac4810c408ef546b475f208ff4986b08ec6
+大丰市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/c72c016e244f3fabdabaef6d13c4b8004f669644
 。
-大理市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/dfc22841d3155d409e8245532b2d3e59935c8b41
+大理市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0d187c9ff98c7c2ad2fab6dc87c7304352d961b4
 。
-大连市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dd08a871b88ffa08e66b1eaa848e0ec185315018
+大连市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日全新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/fa99ef3aaa60c0bdea5fe882abb9cbffa33d0e5a
 。
-大庆市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/08d7e218d341342daf8feb4f807fb15a80f49dd8
+大庆市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/851bef0e4037c6d399dfcf1b3a7ed214928db9cb
 。
-大同市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/7a88652e0896adc56887a67ca44c8e6f975aa671
+大同市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/236000a728061a6f4d20e1db83fdf66aeb7564e6
 。
-达州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/edc677cb2451b76cd5f5d3db20c4ea360db68b51
+达州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日全新公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/bdf1f63186c3db382d43d401fbf708a1722a347e
 。
-丹东市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/92cb967a2257f513ddc8cd69b0ca340c6968a7bd
+丹东市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/25584a4296a3340eadc4b1f27c1e20cdf82a6feb
 。
-德清市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/7d36285ed31a1cbe0fd6ff4a2316833a0780f8a7
+德清市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/14f19b7b7f87de014a8b0b7c93fd12416445fb41
 。
-德阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/52cfcc81534a43bbb310132225bf8ffcd8e0c076
+德阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/383f4e68876fa7e05b27f0ef73d7c54b8d1f29d8
 。
-德州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/6cc5b72a8b2b9c808bd354860da61b0c5aaadf7b
+德州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/9d76fa5a6641f0f31434cec2e65bdea807699ad7
 。
-定州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/1930172af1a56942cea84fbd0e23c8596302c625
+定州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/edf5f171842eb168be5a582b69661339634cdb9a
 。
-东海市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/73a613b2894e1f87b674a3a2bfe65768f8aeff3d
+东海市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/b9ecd3ca58caabce8d4e401f8f09533907b57e62
 。
-东台市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/98e0a92a1f9ea8012b8e038e67c3a561f050cb86
+东台市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/eb404e8a5cb903e862427223a50c663faee8799f
 。
-东营市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/2b3cb0218a6fb838641adada57e94ffead8d4781
+东营市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/19e0e04a3a4d1003447ac6d211c04060d185e01f
 。
-东莞市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/b9839798c0f4df44efb5799c87d927f28af551fd
+东莞市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/075ab880ef687966f659c756eaeb82cd49c041ca
 。
-鄂尔市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/53d480677629ebd8c666f09c7e05f70b8d19100a
+鄂尔市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日全新推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/98923d78649db33b6ebc4f0593a2ceb63648059e
 。
-鄂州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/49e36ce3e870c5bde596a219b3505cc73c8fb442
+鄂州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/3262c3d1e54f9315687bd64f5ea63dbedd5aa64e
 。
-恩施市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/3d6c126d545317a8e22d5a2df6d105b93069aaf3
+恩施市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/3ebde773129c840b11d601006f66afc33c991095
 。
-防城港市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/higginssara654/gexwcz/commit/7de316c6fef644398fe437ed2f9c36c3e9d91215
+防城港市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/92b063cfeb85c56439832e03088d982203a0da8a
 。
-佛山市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/8576355ddef261ca73cdb73eb65d8d84e1c80b5e
+佛山市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/87f68bb8be9bfc541e2c2fe118cf9cf470a31d24
 。
-抚顺市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/04efe1d8a9c5a8154c26aa28fb07ab59174dace8
+抚顺市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/3fbb5e2913d1787fde263f68a8232c213cba43f8
 。
-阜新市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/f55314664ea94a84591f7b19cc68a330fc18b6c6
+阜新市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/3f3f188114232c691e0a5f2ff3ee5755b780fd44
 。
-阜阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/f0ac58d5727b9a24552f02d500d27877c87d8aa3
+阜阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日全新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/61bc35dee7f592b5d7d4a87cebd676ff8b76dbd6
 。
-抚州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/a899190b652cde058351a8f76b1bacc121082e27
+抚州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/3ec750da88c471cce5cbc9886ff9c513fb61fe8f
 。
-福州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/1ce92e7d3d1fcd4068d56e2baaca0d70635d596a
+福州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/603f9c4a379d08bf2f478e05cc2e9b0e46b5f93c
 。
-赣州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/4b86421a93bbe276083e8aa9e77a53aea3cc3e1d
+赣州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/7baba7a2f39ac2af7b03b8688d1c43773f4780cd
 。
-馆陶市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/ec80d9546e7089c6569884750fe8d9746d754549
+馆陶市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/626d86699e803b882ad2d7a71497446f5922b7cb
 。
-广安市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/491277df80ca513f2ec5eb56ab17eada18694b6b
+广安市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/951d8d14bdfcfc12cbf1e2692dfa4aa8b867e448
 。
-广元市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/4566e3f820965c55f21d1cc74279cc2a85a331c0
+广元市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/6ca031fdb85a29015c2a3895f4d0478f3a64d019
 。
-广州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/bc8630a4062b4e3e186e1e27e4fc7989b07507bb
+广州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日正式推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/c98c72d20eb48e008b201fda03a62203b912812a
 。
-贵港市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/4b1f0d2535034dc789d06634a837b1294be9498f
+贵港市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/ce7394788b69d11d48cd1560340bdbb130e9e39b
 。
-桂林市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/d32ea720f482838f1297f63929c223dab2122f56
+桂林市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日全新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/4e7117fd8259d344154884c4fa2003b938e0c4f2
 。
-贵阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/0b1e603fe627c59ded895f5d8d0cc818de0195d7
+贵阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/fd4413143d74289c0a81be3b7545599155ade6f7
 。
-哈尔滨市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/04975ae92f42bdf09551e84b45cbe3d09a1c4070
+哈尔滨市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/83da2418b35d0600e626c923120b68fff5d2029e
 。
-海安市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/3803a7308702d1fc7230876010c779b2b1a68307
+海安市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0bc00697dcc09a3702ad3034f9795831c072e62d
 。
-海口市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/365c101976bfecebb7f4b019061d6d13ad72b0d1
+海口市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/265a5febf09b1f6b59b22a89eea6784ba53b728b
 。
-海门市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/higginssara654/gexwcz/commit/50e148b0c205fdec26427c64afcc7ca61a9bc4c5
+海门市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/c915d724332f94515544bbd337710ef93fd975d6
 。
-海宁市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/653e18e6f3ece8e4c8b96321d0d6994d469547a6
+海宁市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/4f3a19d2fc173f7c82515b38f7a0c98b59386fa5
 。
-邯郸市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f5fea9160bb787c61ea8c0f0f957003158f9f034
+邯郸市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0a356319d083b930a7cbc2e01482c2963e147989
 。
-汉中市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a9e9968bbfdae5bbcd52e88183cb394b1728e8ad
+汉中市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/0e0ab2a9d6b4113549168e716062e6703de7d4e1
 。
-杭州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/826427dcb280db6a83136bf78b62987445fea3cf
+杭州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/ae072e64d48e9306ee4c754d6c194040950c07ce
 。
-鹤壁市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/39b4ce53e748e546004749c6878508e94b28b11d
+鹤壁市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/5ab79fc73e51b6b4bfec79e68ebc67c72a8ace7b
 。
-河池市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/e32bdf91aee6e438233ff601992abc03604327a1
+河池市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d10120c9ae5d42e17ea6ff0f89d574edf453564c
 。
-合肥市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/c6469fc27441f2dbc1faf298feddff339274fa52
+合肥市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/higginssara654/gexwcz/commit/4bf771b80b5d7e897bfd1aa2ccdfb36068469348
 。
-河源市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/5af06fb4b39aaebf4e49f983d6ed59b808c3315d
+河源市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/05331a6d0f7c690e686cebc8b6c3dbdd1c8539da
 。
-菏泽市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/e4864b90e6f8eca08f11d0afa45bcc3745279637
+菏泽市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/af815f3f9f0959a746c46c3d79e9435be77fca0f
 。
-贺州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/higginssara654/gexwcz/commit/1dbf23830b07f3aea50f862db0710e621893b11a
+贺州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日全新推出），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/f42eaee473d04531ae3602c9c3db9b7ad8753c6d
 。
-衡水市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/c435aff64886b8e88ac2d36570e99e9cf6aced60
+衡水市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/0b8938fc6c5d26979ad5824823c071a287de1cb6
 。
-衡阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/577a5498c19d56414fe8735ea43e385be4eee3af
+衡阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/d4c654009c7b6cd8449e1fcd4337262177328135
 。
-呼和浩特市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/5717e319707ba3290d48c66433d837148a1127d1
+呼和浩特市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/e4ee2b247961939819e691f13d3d4063840aa105
 。
-葫芦岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c03c72857e75ec55560171c82b7d02f5ff84cd6d
+葫芦岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/e064424f6e82fb0d9abb8d58df6ffa48b0184343
 。
-湖州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/4c91cbb36594dbf25f8e78e8ecc911c5287322b0
+湖州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/2629a3549ddb75c0242089809579c30fee70bf75
 。
-淮安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/7b77c1e019059c6146441af074e3f787909e96ac
+淮安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/4f98dd6fdd745b32494de14d030fac2c48979d51
 。
-淮北市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/2f41a78bc6a3903975772daf5e2c104fb499f7c5
+淮北市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/higginssara654/gexwcz/commit/53b0f9c0dd52d2659ca24d3d462cd40a6295f74b
 。
-怀化市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/399094ba25243315006cc01fc2a42e793ff98f3a
+怀化市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/d28d0e21abb578414a7cdb912a713765febe08f6
 。
-淮南市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/e3445fad6b5fb2b5e2c3a1443472808124d38380
+淮南市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d7be6b98fcb7d6ca014de3186d48816f2d583960
 。
-黄冈市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/d970aec9e217f8ea49238a326d3ee576cc9f30b9
+黄冈市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/84a67bb13553058912c35cb3c6cf7540ba0c63f9
 。
-黄山市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/9f7ee6e36c4b540f5fa583d06ec22fddc8b31444
+黄山市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日正式更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/06469dfa6bd495f4de5a2d47f0a0a3c2866d6905
 。
-黄石市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/higginssara654/gexwcz/commit/9bed2581005f145b4d03afdafb9284e03c8d4044
+黄石市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/e5a9f2760dcaf1a1344906cbdb97295cba1268a8
 。
-惠东市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/f606a504d25433d02809b8f35392c4115661fce3
+惠东市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/7dd52a35d0422e887cdfbd0975bf1e2acbcdf08c
 。
-惠州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/f4ad6555456dc1ab256845c00a9dc662a110bf20
+惠州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/a6254cadb4ee63213637e3a193f0d3feabd62896
 。
-霍邱市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/745b7c26e52e8e932d407a4c74b42df891db8045
+霍邱市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/bbe0761fea16f08bd12f2ca755e3effaf3f054a4
 。
-吉安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/fbeacc25c32e464409e6d3f6602857766cf846db
+吉安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/20196e2fd8ba38ec2d03df5a11c3a71374c0fccf
 。
-吉林市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/656d1c23cc64664048bf9fb1f23f8edc7a3d6d4d
+吉林市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日全新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/32ba30e72e8794e7dfa0d057345ce0d9bc67f050
 。
-济南市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/e8508934559dc5b846f096e98f962f0e5b15d9bc
+济南市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/84bdfd68387ea84dd34c4469ca7da254a9aeec62
 。
-济宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/dac9f851ae76431690d7434663684e08f1677fd1
+济宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/ce6814e96d925c2d8de5e386f0c60ab5b04e398c
 。
-济源市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/8ecf64fc2e8d072c965c26531cd2dc85ecf4df19
+济源市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/3d5e37b5cb962b6c567a89620054928b0b5b854f
 。
-佳木斯市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/16dfade973f3f722a6ae679ac3f9958cfa64b250
+佳木斯市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/0b0fffa3d8d23fc84a3c6bca4123f825e4082bd1
 。
-嘉善市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/55e3c22e4cad2fdcafe0ca9af6d88a6516b9f0ca
+嘉善市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/488087366b72cd67ef485af7f3c6708c506bce04
 。
-嘉兴市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/f0e02b4f75489119efa37c93f8c3b1ce6b4a9279
+嘉兴市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/a7782173e7582eed280ef0aa458f4ba06c31e58f
 。
-嘉峪关市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/c2e1d43504c24ba1063ff412573d5463ffa9b61b
+嘉峪关市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d52d6c6cdd578cc47def040bee9791c3ad655b8e
 。
-建湖市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1b51e576b228a7d684f6cd9a073622bfab1a7fa5
+建湖市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/57f8918bcafba4f950364d49343582db415059f2
 。
-江门市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/higginssara654/gexwcz/commit/f0e39b8f6f1001fa5f308ae14020abba12e34e93
+江门市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/fea57c384be57bb2cf56133580ab4fcea1446f6f
 。
-江阴市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/43104afd7aa9ff7e0a29e4349bf782ec758f84c5
+江阴市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日全新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/ac0a9988c2d53737eaa6f26c4d559d1976d5cab0
 。
-焦作市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/a15a6dfb90921b89c4a97764cafe3a6f5bf62459
+焦作市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/28240a489149d4ecbec6cb68082fab655635ad70
 。
-揭阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/3cf77f221a1afd00b4fd34cdc5f0321dc7a487aa
+揭阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日正式上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d5decaf0b99b8647fa92a4039c293794853401e0
 。
-金华市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/b0adc7e2ebe25cd699e6da9d40a59a88efe594c2
+金华市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/1e72b3b2f3f2689aeb57b2c8170364ccb5e4784b
 。
-晋江市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/358da9600225b2ce1128405d9a7a189dd185f71c
+晋江市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/9b80ec55b9653cc9b5548f852e448803962a90d8
 。
-锦州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/56055ed98b2a0798e300dae7dab522abc37c0b48
+锦州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/2b5eff8b94032db9dea8a5cec511fd8526f9e85e
 。
-景德镇市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/08d06d50d15615c4e2dc7fe1a31efd7920146cf9
+景德镇市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/49640adbc6b5e8e5c788f6c7b2ea296cc1e5527d
 。
-靖江市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/1c8c263964b207dba09dc1e6b7e5dbf49ab3c17f
+靖江市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日正式推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/8e0db9dad149d977bcbafaa42f8822e1e210d820
 。
-荆门市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/23c2ec05fac1a5b4cc4c6edecd73ebb575b6f6b5
+荆门市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/e937eb150393a9e8e024123db92dacd227b40cd1
 。
-荆州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1819f818607367fa30f912c803c1f1eb04ff0569
+荆州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/845211971014b47c83c22ccd1309af684e19eb2d
 。
-九江市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9c7f97639aec295ef92ce1843a2736b12c239da2
+九江市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/0855c34eb190866331c046f3d2b9fecfe889dbdb
 。
-喀什市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/4489a05bc2677244cb76da1833f8673fa24948b8
+喀什市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/40977c1cbf100b4e56c9a0f5e90c8937ab16e152
 。
-开封市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/16ab8bf53c4edaf4738087d1dc3de7b8b87ec8a0
+开封市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日正式公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/fdecceb846655f478fbce660b32efb3b0d789668
 。
-克拉玛市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/48d88b732d0efbe97c25dfdbba3ab1be11298084
+克拉玛市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日全新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/5a349ef7337d8aaf9bfb25ab6b74227a7a566b89
 。
-垦利市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/ba7483bcc4ec313c965aeeae7c40b98457159aa8
+垦利市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日全新上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/9d3067ad8c9c3371fe3a29497dd1250e569e7c86
 。
-昆明市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/917064eff79d58024360eaaf79443a4a4e2d80ca
+昆明市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/0951d4b4fbff0d1e31637c158ccaf1f84a6aa143
 。
-昆山市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/f0275336035c84ddcac4478c35815815cff95d2a
+昆山市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/1f1fad1f08427a933b9598dd8dc646dff2886dd0
 。
-拉萨市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/8b78106c0186d7a945da19be2a1ecfb6a54418d4
+拉萨市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/a93c5f803c4da3c3b56f7bd15d0493e8e88df5b4
 。
-来宾市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/5d12e353e8723dcc6884649975c4d68b164c1103
+来宾市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/a56fadf4f53877faa6ea8032c799c5321371946d
 。
-莱芜市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/9b8754909ab80a472259c0771e7bebf064c9a1cf
+莱芜市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/afa46bab4762e927faa6a62e12a444ad2d143006
 。
-兰州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/0bd5ce5f6f07fc88eef06459e5fad3a137dbd624
+兰州市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/8275f511b6e88937d2488933bd4d5d8e04d13297
 。
-廊坊市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/higginssara654/gexwcz/commit/ce152b7661ca2e5ab9f5fcd37f2a16c52c18a796
+廊坊市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/49934c485ce85c87ba0b56dc801192207e227aba
 。
-乐清市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0cac5e7c296cc8564d2b0d30af33cc13b3098fd1
+乐清市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/772a4512d89876052f8fdbccbd5d97f3ea4635a5
 。
-乐山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9f5f30616d376a1eef5c5d3c47c2e62d09dcea15
+乐山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日官网更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/8590af963fc46902955171a6b72d465d891dcb62
 。
-丽水市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f686fae5c804746dfad454f2dc331ea8759320ef
+丽水市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/341e3c43d71588036edd3524374bc0e1257c5248
 。
-连云港市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e0f45021bb8fcf9b26eee45272f221dd11fc47ab
+连云港市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/0eebdae0899541d29cbd27bb869d990c25931cf1
 。
-凉山市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/efce4cf227e0b251082ecb2acf3a378d163403a3
+凉山市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日全新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/e702ef6a11b477abaccb2a85f4510fab133fc7b2
 。
-聊城市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3c1c61ec6feece2d2fcd6e08a42c4d3bb949c0c2
+聊城市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/0f5cbb16acda084e9ded603c6a81b3cb322bcbed
 。
-辽阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ee7658622615ecbd95681f3f5a240a0271fd69b5
+辽阳市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日最新公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/97ee198f416f69ec9e38dd2665affe2ba604e96d
 。
-临汾市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dbae805ca8534c8ffa85e96d688fb135f0b516a8
+临汾市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/d8b5b9f28fe9a342e8a2223de4c883e04b021a8e
 。
-临沂市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c82160e426a084ba48772899a531c3d498fbf6d5
+临沂市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/84f97ee608b75544e894ba4f4abc3edc91697182
 。
-六安市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ab821d65dc43e5e22a89c24c15409b812b4e5eb
+六安市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/85e3f44802d670f05313b78bde9dc1974064e3f7
 。
-柳州市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f37d70c7eea496acd15ecd302d7a5fb39330b945
+柳州市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/33393b2e9a5190e21381cfc20768ea59de6d6023
 。
-龙岩市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/52f94e74d4140978efa1ca49f3464700f1fe97bd
+龙岩市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/e7da49f0aa64042d59415d364541f997ea56a28b
 。
-娄底市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1893a966585c7054fd02e65bed58c474134ce6aa
+娄底市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/fb030b4cb9ec26cb39ed1dd0713c1c1b6978e694
 。
-洛阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e69648d47add6069e02e51d95056f9e37c06b0ec
+洛阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/5056b20c63751d7c5e42612ec08baab8ba907d9c
 。
-马鞍山市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7ae90e8e5ac9c1fa6f2c2a738d9e3a9c0c2ac239
+马鞍山市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/eb6426794fc64f425322ec9116e4a157a096bab2
 。
-茂名市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3839bc2ff352ef811006ea7b4b146a263f23536f
+茂名市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/3a72c6fa66f87ad1af9185b7f510549a64280507
 。
-眉山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1abe4834f019a9a10507ab7e4e89d977f54d8467
+眉山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/1e96eea771e0d4af86481537127a981d5b6138dd
 。
-梅州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f6800752e508e92fa7f0853bf25938d7671094e6
+梅州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/ddfa10cc3d0e3f85299545f37ed1c73e2de941c8
 。
-绵阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/daaf6e7e6b51fb6c28ac68e21fef4fc23ac5fae0
+绵阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/2c47a508b650810f3692aacf3a0ee71056ad2cba
 。
-明港市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19d0c0c01a0e9a245f600edc5a7efa62dc9dba99
+明港市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/648bac7f82357ce49c287c9bd0a7555f1598cc91
 。
-牡丹江市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0a7a6e0ac8c8a5ddfdb724f6328e61f5b0ec854f
+牡丹江市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/ef0798388ff7cc179a60bde3c962cf469ab9cef0
 。
-南安市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8e73abaf39826a9bdb013da0c3d0c735419a695f
+南安市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日正式公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/cfad9836dabb328132c9cc5f3278a82587a7ea29
 。
-南昌市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/55ebf048d2e8be7f674520d4b5e866bec245b1dc
+南昌市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/f9cbb4f02f29c13e4d56d64e7f8af8db7fc3680c
 。
-南充市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/56b726c099192a8a3c091363c96e4c4198e89578
+南充市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/af1a7b29da8fe683954c93a8712f8d2b688e24a5
 。
-南京市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a85f69dc21ec4e0a198282f77e171e0c327d0c40
+南京市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/83e9ba4f31fa2cb406a30336a8411a5447ba6cab
 。
-南宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d34878cb413696a04ea22f298cdd2a76281ac6c1
+南宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/7c35a0954c904f5b56eeb5d1350f890f3d056850
 。
-南平市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9ab3786579a5add1fa7e70aab34dbb131aea37bf
+南平市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/38e50e730d131ba119165ccf9a9444d7f77217e7
 。
-南通市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/aa3b541e8ee80f0e5f75d2ae68acc997cd5d4d3c
+南通市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/9cb9b0b5298d4d86359073d8a73817eac813430c
 。
-南阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/93056357c774883fa3427bd2afcbdfa9166b8fcc
+南阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/8426097976428aac5d01dee88a1fae3baf316c0a
 。
-内江市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b8f9554c499612a0b5ed36beeba217e9cce206d9
+内江市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/765faef391b42e01c3bcf1397f76fc7f632ed1f3
 。
-宁波市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2ff1b674dc06bca65b5c972ea40cab2cd5ce9ca6
+宁波市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日正式公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/2b7edefb32baa03e87e44349f1d05c305877e164
 。
-宁德市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/883349a697f22afba634b3fb3457d0ac8bbc30be
+宁德市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/99b21149b63aed21385edf46c17b26aa200b31bc
 。
-宁国市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b420e4eb853dc2032a6cac5d2f1a2b7ba976efd6
+宁国市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日全新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/b7087a435035bff8e9b7aa509c205e193d1e66b9
 。
-盘锦市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f238dc78c28d9c91da7a566c72b39ac0dab6f819
+盘锦市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/fddc04a806422fa8357f41bc4168c345fcea9f1f
 。
-攀枝花市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f241347942bce0f3f5986dddcb1e2b9d5c7ca11d
+攀枝花市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/66f4f1d3b17dafcdb1bf2a9e6136b1833ffe5227
 。
-平顶山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3f262a0e71ccadb14f8d9c55108f0a2baf3270c0
+平顶山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/5d994280e55bb9832e35caa2939c1626f19bd7b3
 。
-萍乡市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/24903283cc2905aec41fa8c919945f33536989f6
+萍乡市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/6aa8541e1fc20b435b64ad8b9053f4b4e2071d82
 。
-莆田市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/639ef7ac6c2e824aa280a16a1c1845962dbacbfd
+莆田市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/f183c272c1b4bde0378f253e2dfc01506e80cea1
 。
-启东市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/37cc4c7b69e8e7c53cb2bf0ff57e239a4d01dd64
+启东市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/1ae153ade82d65d7b62ec9ccf4ccc85e9f9c13a9
 。
-齐齐哈尔市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19d8aa0641d5c7ffe04cf88caca1ffbb656fd1a7
+齐齐哈尔市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/faa444a1b8280e543a00305e005669d150bb1966
 。
-潜江市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/89029593d567535fdddc9d41efcdc1a2a1476139
+潜江市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日正式上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/345aa9be924c10e887ffdfdec6a7715571df3677
 。
-秦皇岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/00d911665b2f8d37110694734682db480b90b6df
+秦皇岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/4608a7a35ab7975bae6b9d116cea38fa8b90a0e6
 。
-钦州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b9d1288d4998a04c81c7457cf64c442aec3ead29
+钦州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日正式更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/ac9227728a3770118825c76c894725fe59880246
 。
-青岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/606595b2c262f22a94df88ad2e9a47360f0017e3
+青岛市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/863ae8f864ce754dc8a14ffd169e3536098ed08d
 。
-清远市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d3724d80b1b17c6ec2a4e72ad9ccf87b6c8226fe
+清远市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日正式公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/fcab419d781132d9626e14c784574d14106f34a4
 。
-曲靖市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/847c6c21555d9236ad581feec3f9d483bc660c58
+曲靖市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/131adcb21cdf93cf5e25e6ad5f91e2c283ae5d7f
 。
-泉州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/83cc734b9027294ce158cf9566e9477127968c28
+泉州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/26853f98f9262b84a6a632795036748cae0f76bf
 。
-日照市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9b94f90ecc858275df16c0d7d83a9a7e33c234d0
+日照市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/21eb49efec0df8987ebc4a18d249c2cf5ab8f2f2
 。
-如东市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/282eefdef8e993f8888e8748a3c3e09c2885c5a1
+如东市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/bf150660b9dc72b8c26a39d20f507d0b8d2eeb49
 。
-如皋市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c2bc8aa4af7ae3eced6d550e3c613d4abe6fda13
+如皋市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日官网升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/c99a86320b8359f2b42a18ba2f6db160804860d1
 。
-瑞安市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fac776a8e3091fab7d3eb8743776b9b81dc4c359
+瑞安市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/2705566bc934748c825814579c3b38e4bd939060
 。
-三门峡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f4ace9a9e5f630383cf9413f762bb767c4a3a2c8
+三门峡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/b04f76710af8bc6395071ed14803aa9123a70b02
 。
-三明市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ee3a12f30ecd1b8f7de81aeed00df81d9da832f
+三明市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/2833d85a74cf983b15be3dec51448b53b52c8bbc
 。
-三亚市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b3dcc3a430b243ab84693f6fd0a60698d2960274
+三亚市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/00abcc4541ac21c24961b33daa0e5a00a8337c7a
 。
-汕头市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6370a5524095dc81b84bf816d7551af9fd9aeed5
+汕头市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/e3e34cb8d495bbd43f9571a37110011cf12d6079
 。
-汕尾市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c80b06b4d42fdd3eb8fc931643320da543b9582b
+汕尾市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/bb5351f9f2dd1ed664a01802c3f1121ca3716d55
 。
-上海市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/892713c27a2016b5e6439925d2215d225acc5786
+上海市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/816d56849928658b3d8a05d6ecead11b64d44e8b
 。
-商丘市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1fc7594fca5e6eacf1fcdd3452de71f123930ccd
+商丘市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/8c2c8176c6bddf799cb7b0a64b880570b8d0aa4c
 。
-上饶市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f1dca20f9daec8974473e208596434a4cb11fdd0
+上饶市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/398839443956696375680ab1e441c4f6e9d374f9
 。
-韶关市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/35384252e40eaa9cdcf9c16c8d0f74c65e552d25
+韶关市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/803a745d55f8fc50a7e2c9ee193f99099b2aeb86
 。
-绍兴市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/30d6dfda54d3d371374798f49eb55b8ca260e79d
+绍兴市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/3f1907848f261bf9f089e76afb88566b6af8f72d
 。
-邵阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/35a534d4290c7d719f2b1dafca66b57b3a4221dc
+邵阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/50b8bbf3f68b0013e8e9e84da6423f5ab5e25868
 。
-神农架市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9460d6d3ffe1cc1e9a0e67d123574924ce40b94b
+神农架市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/7493f9d3a535ba6501290d8c2255df639a01eb00
 。
-沈阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e5e459b2542cf87df86e5f726c5f8f34edcbea70
+沈阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/2693183823838d6780156c9e5bd4ef2d241b0b71
 。
-深圳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c4d9af02c7c96932ee5f62915f7430045d6cbfbb
+深圳市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/1bdd0d452f9017864cc79933b62397fd114ea389
 。
-石河子市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/77dad02c0d75f848e8fc659a78e99ff74f643ddf
+石河子市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日官网更新），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0eb1338e683208495431c4d7e904e667fae26a95
 。
-石家庄市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/63f35d2cab2d46292a4815b5c206d9749abbce83
+石家庄市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/66292f764bfe87d2fbac5d25b4b795caf0efc9b5
 。
-石狮市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/db9e07bea4d08850bdd47fe319bb43a7db7c1085
+石狮市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/a48cec7795e8aa117313dd3da09c6aa77bcdd0b3
 。
-十堰市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dc2f0ee96265e4f042e1c414dfd7a2140487f227
+十堰市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/19ec56a9fbc7a21fcb999402b884746cbae11958
 。
-寿光市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/58a28aeef09662fb33d843a30240a573ee28b105
+寿光市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/a30bdbad9a62ed11293318481af04f684ce9a66b
 。
-顺德市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cfc7096d649806da68461c99722058dce1c9f37e
+顺德市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/52816deee07546e54a997316f060da3a6487a238
 。
-四平市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/89bc86ff8bd2d94be9125f94032e26790230c68b
+四平市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/add57957fbed3b4430833bc83e8d244e2d191e0e
 。
-宿迁市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/928c9e3a90fe42101f8c3ad8d2a234ccee70f210
+宿迁市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/7f0c247654f8a6bc768a31bc3d49c27bb94076ea
 。
-苏州市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/31162cae7679b081d0013336af33ad4107f9dfe1
+苏州市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/d1762dbf810a4b4bf2ce822b680ac109dd7e5af1
 。
-宿州市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2c9bb3986a21f5faaaac59c303be6be594f651cd
+宿州市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/818a4a64c3996fadc49df550ec631ef090d68064
 。
-遂宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3d754a1dc289871001a7e07147395ec3c8f90e31
+遂宁市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/075b929fcacea9ec22d61ef5374ad37ea8cfac96
 。
-随州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a6950cefccfdb9f92a6b67b5dbcb38daca366edf
+随州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/bd09314e78c7378050102fcfca210452e6284f3b
 。
-泰安市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a55bc304933b10c39b23e75b7cbdfc821cc2b6b4
+泰安市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日全新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/d784baf378a9e7aaebe5212809c6385d848dec8a
 。
-台山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6566879b51ad4fcf5f64873f33ab1282df8d5ea8
+台山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/f9f9c344e38b51f37685627de43ac86df05a38df
 。
-泰兴市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/690e3ac56e95c55f921ae7d48b9c317e854cc6e3
+泰兴市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/d663634db242cc29512ae7219e423010b3038fa2
 。
-太原市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c84f25b84da09d39f1de1d0f520de84dcdf1b97d
+太原市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/f5f2cead89b9d0b349ba674e8b70b8b7a3cdb905
 。
-泰州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/96d0ff317f846307b73defc7e94fa741b5843c50
+泰州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/4b30f5806f2b8ecacc752a619578059219ec1825
 。
-唐山市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5c3512c5a9ae1f2259c3daeb9f6f6fc14f041452
+唐山市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/73f4d6f293341bca02969ce92736193e27a9b165
 。
-天长市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7714aea9232130127481aba4795bdf1141042c14
+天长市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/f17b1fb9061e8ae8563e602de60e251a37b736af
 。
-天津市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2102aaa506c565fcc724a40ebf570a4ecf2ac83a
+天津市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/76c91e7f30456c086449acb07369c7459e96700f
 。
-天门市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1796e9cdf4dd62194e2da70768b1984fa7609e54
+天门市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日正式上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/5a0318d18ac4e90fa0fe3d4ed83aa3bcea4ef995
 。
-天水市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a244b979349f5c1b534e8d2bba5bf955d09c3f3c
+天水市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/3a08bd0f0e31949121e48dafc3c457473a5e4c5a
 。
-铁岭市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5b4592283f5623b78414941746b551befeae26d4
+铁岭市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/e17ccadce38fde7025bd1fc5688b5f7debae3fbd
 。
-桐城市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a351dc6fb2b5917ea15fc2d6ca3f3fa4e77113fd
+桐城市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/a75453febc1dbf67a74ed9efa84f44f8f09047c4
 。
-铜川市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0009176dd60bc0295b3d8083ffc459cf594d937b
+铜川市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/e8dd1c77ccd5aa5da62cb8f8640bbdf177b9e6f5
 。
-铜陵市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f6fd7fb39f7459a8a7af78926b631bc3b054212c
+铜陵市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/8a56b882b890a8e8191d73774b2f07488144da8e
 。
-桐乡市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c9106260c9825b408ef9b472748ee53ebc6e1c18
+桐乡市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/437c48b896dfa13c29d7c3853ac7bb1ccc3ee8d9
 。
-瓦房店市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/bfd89a9209fbb0d66358b463ece5c9ded98ad9c2
+瓦房店市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/c108bac7e0111b14cc7a612ecb7b27a96f66daf5
 。
-潍坊市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6c703948d1680c6ebacfe9ef32d303d11c35ae3d
+潍坊市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0d7d57b00b54232a6d90cff1b9da582e4a78f2ae
 。
-威海市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f410c7b1dfc38b2a5ed50ee1fe11960a97b72f8e
+威海市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/8c67e08774f350c21191888dbf3776a928c3a8f6
 。
-温岭市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5681649f0038007917fe07dbb4c2df3212c72355
+温岭市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/c833c2830c50738e542aff669e99e338bd33364e
 。
-温州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ee98736ada7c593d505d48a67f720f1fbe21471
+温州市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/0e2049eeb6eb6a538fd8d1e878708a800e9486fc
 。
-武汉市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/106cff93cb444996ca9bfa759d36eee12f8e6dd5
+武汉市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日官网推出），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/2f5466125293eb6a72c8c6d620b53af8b92df263
 。
-芜湖市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/29aa70ab38e623f76280d0b0630470712d909d87
+芜湖市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日官网更新），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/bafee53aaaa434163ad0d379e1ec8b0a6c5227b5
 。
-乌鲁木齐市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/91851788ac2d304cc73fa810f7a4bbe35ac258d0
+乌鲁木齐市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/724f60b18b331b27c1cf4f3a2f0c01aa38710038
 。
-无锡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/28de4e88c3b6477563903b1f3258e22267c56dc8
+无锡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新更新），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/5ebb334e5f4482ccc5460550e99a4967a142e25a
 。
-武夷山市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/23ec926c3b7cdf83375c1d9bad12c5c111e1a714
+武夷山市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日统一推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/7f4295c9ecf6140bc53b7369c914093c075f9dc7
 。
-梧州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dfd7139e36105293fa4e2bf9d47acf4e6a438fc3
+梧州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/6fa0be02da8a4b9ea8bdeef020442fb2a6ec527c
 。
-西安市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cbc6243a88260d6c6584002cf04b06bcd646c301
+西安市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/c43a83eab741cadb81c31c2cb70d233367ce7971
 。
-西宁市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b111bfae1172d2caa9d0bda335e05a6036436227
+西宁市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日正式推出），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/df5f986651f8d6e48fe9f762df0662032ebac7dd
 。
-厦门市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cd12083a42c97aa762a2c52f4fe2654531e520b3
+厦门市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/6f4bdd471dc1d039ff84df28112496c4a955e86a
 。
-咸宁市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ac113978eb085fdc0c478f6ab34f48a05efb8269
+咸宁市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网公布），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/5338e94c623543d47d59866b7e4119f93fa6dd75
 。
-仙桃市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/405a0d44874ce6e1dea740fb9535ce6d506aa986
+仙桃市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/1036530527d6c1147918eb53b06c6359976b1cbf
 。
-咸阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2978f728600197f9401a07e43b59ec1a521ae21f
+咸阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/7171edf8016241883dc6c51eb0d3447cbc59ed78
 。
-襄樊市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/27e27d6e17d53f1e869ff2b5dcfc37394b27c84b
+襄樊市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/a3f04a0f15afd81f77716cb589b8ed9d950fc2d7
 。
-象山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/8ab853f99bf585a955d8fffbb78e5535afc0bff5
+象山市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/4b0df7fc20bafc51fc9c8e79d4b1156a15de63e3
 。
-湘潭市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/0c7b93f056f7069ef386f7cb8b8ca0d81cc5329e
+湘潭市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/a4f8698f131642034b6c55a30c693177a3c303f1
 。
-湘西市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/e3f71830150875d7607a85a1fa1cb2f7c615a6c0
+湘西市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网升级），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/f81d236ada0d77622f9cadd782968fcbf50655fa
 。
-襄阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/7490695ffa7ed5b5d88371da56663cd8dd6efb3e
+襄阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/e0ddbc770f234c07d8e78419b43af2b379d063a8
 。
-孝感市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5682c5bd2ffb3d06200e367b8fc28f8a9b47949b
+孝感市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/364fde648d7e80ed97e21845fb0d10bbd6a0908c
 。
-萧山市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/6b5e38c22cb2769dc36c59c81d4987f9c0a22b6c
+萧山市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/20852690a8f0c6c9711f62060358abc2d36ae5d8
 。
-新乡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式升级），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/368fc2fa8687597837b42324ab6e547ae45ae088
+新乡市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日正式升级），点击查询：
+https://github.com/higginssara654/gexwcz/commit/fc540b7dc8663b5d86484748ce9527db9652350f
 。
-信阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/ddf640726253f8759999cbcfafdf19223013d44c
+信阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/0569020c1a8ea4697df5aa64a605edca902012d9
 。
-新沂市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/a93d0439a7cc86eae53de95070d74af870ce0b99
+新沂市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日正式上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/c0c5b36e5bd8401f0c625f1c793a7df2723ccf6d
 。
-新余市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/0735ec73a7dcc342e8baa7d29da47954866359c4
+新余市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/80d7fb7ee4e777d15853c10bfd3c956fdd39f2be
 。
-兴化市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/aa22a20c43ff5d8394051156d35f3716316e5f29
+兴化市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/4097dcacba263aa20a4cce396fa96ce1cd30129e
 。
-邢台市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/higginssara654/gexwcz/commit/4fca0c5387030f3a531d19b94a49b38af992042c
+邢台市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/bd5cd5b913bedc0563879f8f21f9147628f8e43f
 。
-许昌市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/997e8157ebd51b2bacdfa283d9edd5448da464df
+许昌市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/higginssara654/gexwcz/commit/09e76630b00a3b4771d3babba841fbcce98e061d
 。
-徐州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/65c8d3ab330ca7cfdfc4fcc9d28ce1187ccec889
+徐州市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日正式更新），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/219bf989cc95487b3427cab3f77356bdda1bcdce
 。
-宣城市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/1e97874b0ac0fa4023e7158b1fdba4f801edf7d8
+宣城市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/6a890b0f17ffab54fe4a652e86746ac7a34c9ec5
 。
-雅安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/66ff6f27ca0ca7daba4e086216b1f65aaf2d6c7b
+雅安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日正式上线），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/5b21154248fe2df66125fda7bc27a0e0bedc05bf
 。
-延安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/1bbcd8428ab7ff649bdadd7dfb2ea42aa4261607
+延安市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日统一上线），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/85ca690cb1fe15258ee54e2661416bbe7634717c
 。
-盐城市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新升级），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/6cdca7ef87639641d65fe1ad9dd2362f2989f2f0
+盐城市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日最新升级），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/6433d1a4c778e516fdbcc52b3da63fdccdb080c3
 。
-烟台市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/fdad3724c02c3a5c18695b47b565f59d01c53845
+烟台市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/4b311ca6008a9518d1b743c340de3578130afde5
 。
-阳春市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/daa49db15b4a146fc5a7eea0606d67b53b2ab64c
+阳春市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新上线），点击查询：
+https://github.com/higginssara654/gexwcz/commit/d0fce0eb357be578c5f360af4d34787ab70b8f06
 。
-阳江市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/higginssara654/gexwcz/commit/e76b0301c0c2ebdfe1a62f5e4a4118fd3ab90703
+阳江市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/b2486a18cbc857a9667278be9acd2e1d470f5357
 。
-阳泉市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/0da946a7edc31b1f7169dbcf5aa4a0bc71ab437f
+阳泉市TCL中央空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月18日官网更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/164655d71d05a311eec4894ee4d9eaea16e5bcd3
 。
-扬中市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/123af685ecd6d0ce56a5676639b2d9118f216a59
+扬中市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/b8f2149dfcf518c6259fdc8f1a80addeaf086d15
 。
-扬州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fa508bac2487afc33b6393ccf4152446e8544a38
+扬州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日统一上线），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/e566b3280b69b90221f3374392b550e14d687892
 。
-宜宾市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/aaa862c986ef12e6f0e300ed51d8fdb63a15d809
+宜宾市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/94ed87f96ff177178b7618fcf30ceb1a93f5940d
 。
-宜昌市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式升级），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/4e875d0663d28d928ea1ee15df9a7c5ce6807817
+宜昌市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日正式升级），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/69c6254ea247a63e149ee4d0adbfd8b6ecc6fd3c
 。
-宜春市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/a32c5a95ebc6884edb9f3fb074eeb310ee62813e
+宜春市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/7844847961df7749b3798ff03fe5d70356e0eca8
 。
-宜都市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/436c5ef86cbd9f8bd4822e8a15737b378b2cb8e4
+宜都市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日正式推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/74b9323d5e30c336e64da516025a711804ac96b1
 。
-义乌市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/430ac0e359d2b04573b96d15eac42607a7c9f0c5
+义乌市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/99040b37b72e91390ba7f98bbf55a36495c5f238
 。
-宜兴市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/d4414493fe30cc71eb8b0bfde8ebc77db7257178
+宜兴市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d804c5b6bf7b4809d6f542c77ee11831567c84be
 。
-益阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/higginssara654/gexwcz/commit/7c9f239e6d39e0d235b6123b2a789509a3f57c85
+益阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/175941cce6770950db0f563fc44135b57bd94a5a
 。
-银川市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/c45ad572331a8e060405af3273dbaf33ecb82144
+银川市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日正式更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/38041bd7e2e30d64a69c55cbc90a2f7d23724a0e
 。
-营口市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/71ba7bc09bb7d0b1f06a2d9de91d3e75ec9fed6a
+营口市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/930aa73bfa1a91832b27b3ac048c35e4a5d3b17f
 。
-鹰潭市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/849658d63c146e974e092f2e0990fafac38141c8
+鹰潭市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/647b21aa734ead4d7f9d9b62c27606227550b6bb
 。
-永新市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/8cd77203024dd122197e9ac211f08a967793a3ce
+永新市TCL中央空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/8fa239479b05e9ee795b49a7cdec9ef7c3f4c811
 。
-永州市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/0be6034fc80687a9bf2328996fc09b7e56431cc1
+永州市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/7fcb1dc104b127411c3d4dbe6a62b15a81a62984
 。
-榆林市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/1564c0ac885cf634c6d1a2bed5d528e314a04b22
+榆林市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/05b2d15cc013335637c633c6169674ec4d96f780
 。
-玉林市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/01c42d33e22ebb6a3c03063e4fc3a617e8f53917
+玉林市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/80222795b87f9f821e695d540ab3bccd88c8a0a2
 。
-玉溪市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/548ef8842ad2c419cc305ff0a3cf8ecd5edb9a3f
+玉溪市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日正式更新），点击查询：
+https://github.com/higginssara654/gexwcz/commit/1e1cdc29fa7c9c095943a806711281dad26ff333
 。
-余姚市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/higginssara654/gexwcz/commit/1d1cc47626ba0aa1c262c424caa4029b06b03ab7
+余姚市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/b470c30c20b9f2ac094f9778e6f686603485851b
 。
-禹州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/b230806a9a747b68dd5dcee53cb17ee00cc6effe
+禹州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/d1fd7ea67364d5161a706c556d75e213aa393505
 。
-岳阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5bda9d170855a7e1f0a995e8a6f3e88d8da57cf9
+岳阳市TCL中央空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/168467124930f0126759e36819d753dfc19a7bde
 。
-云浮市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/a45b10cbc093234be65cbebb575e292beb8097b8
+云浮市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/899d431bf19959f5349382831ac0e53c4d4d8086
 。
-枣庄市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/57cefc581de1b27a859aa340b653c896ebe29a0e
+枣庄市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日统一更新），点击查询：
+https://github.com/higginssara654/gexwcz/commit/bfb8e9253c8c11eac0a1b60b4ca0aabfa3806165
 。
-湛江市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/00444d67ca642a5f349c396a4c7bd3a3a66f02a7
+湛江市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日正式更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/5fce818afb26a8374ddcdfdc620c0bbe72d85474
 。
-张家界市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/99f90e5e8f111a6971eccea98974ae8cfbd5478c
+张家界市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日全新上线），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/2e47593bc2cce65810b061daccb89d51bf23b679
 。
-张家口市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/b9eb0f868f355fa815010a9d9f144b3656e40c51
+张家口市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/90523c0618e24fbc9d75fcca4f7494c9cd44bb27
 。
-章丘市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/56c3ab2a6349afd223974abb7f83c601f243fa6e
+章丘市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新升级），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/d4ffc55045ddc36a1545f209c3a3d9580cb90de4
 。
-漳州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/higginssara654/gexwcz/commit/9a98325c2b972325d78ba0f451b26e1b756c843f
+漳州市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日统一升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/481f8532c02837facb060d4659020b5e56bbca89
 。
-肇庆市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/190a575f404b5b926ba848b1c2b6fc4d8c5ef19e
+肇庆市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日最新上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/04dfd1b1f8721351382461c35f9e7da9818ffe41
 。
-镇江市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/983150cf8ee901dfd32652c33e76a08a01644ede
+镇江市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/e6099dfce8698f73d4397ff35022bf2c7ff865e5
 。
-郑州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/34dd6b40a009668c0f58f1775c6b6e42c269c6cb
+郑州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日全新上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/36998275d215493bb70eb87c794a5d4d5ba1d7dc
 。
-重庆市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/f714c5a69ba0dc785b2d161f75774b7c83d49894
+重庆市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日全新更新），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/7d928789c1a01ffb8cc49887cefd2d1170ad0ed9
 。
-中山市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/47645e6d12e13a9fd53bbc3ecc7798837c1f48ab
+中山市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/adcecc4ce99491c4a9e3e544ef7562cdd8faa9d8
 。
-周口市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/0a64df124209bcba6def601f4361eab5ecacb12c
+周口市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日官网上线），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/6633d7ad56103837ce30538ec66bff1bbe8f0804
 。
-舟山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/ccd5fac8f07f4562dc3841c13183706544bdf94e
+舟山市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日官网上线），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/e0a407f4b40124e969d3729b9038a748c8bba367
 。
-诸城市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/354dca8a1dc055fc7656be13ad1deeb668023db9
+诸城市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日正式升级），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/40dc885da5afff7e3e04c0568c5fd66c93890020
 。
-珠海市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/higginssara654/gexwcz/commit/31f3cd9f3b9fc778cc9e9587f61843b5796434c9
+珠海市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日统一更新），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/20b2e91c9f33f6d2a039dd139f1ad4304c702aad
 。
-株洲市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/2fc700623a4a17dbe651accb8ce54c6b442ef730
+株洲市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日统一公布），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/f0a509fc4f424faa76360a56b60a7a82093ea706
 。
-诸暨市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a450628da05dc0f829cc5291d9b16e8c3a308fda
+诸暨市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/higginssara654/gexwcz/commit/f1ea8a43687f5b66cd02acca2394f6c2894668be
 。
-庄河市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/7b974f6a53fbf699e3640b38e71e1111f84021a9
+庄河市TCL中央空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月18日全新推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/20a354111d9ff00a9bafa1a4e37d32dd2b9eee50
 。
-自贡市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/2fbaca4c97f0f818334d46a28a322d42e4f4e78e
+自贡市TCL中央空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月18日官网推出），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/6fb1e4fcab4949691e6c0d02fa5e2b3ace20ab7e
 。
-资阳市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/4ca84a315602b2e8169c5baa85f053f775b2e632
+资阳市TCL中央空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月18日统一推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/0f257e27ca86f467f077efff7c55b0bf96d59b9e
 。
-遵义市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/c572da88806f447084c84dae9810c80f362f42aa
+遵义市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日最新公布），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/99589da05fb8242a17bea1f2006a8663a097cb10
 。
-漯河市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/hatfielddeborah52/lvguzl/commit/f8d20dbcf5afb4706975053461595e8afbbded69
+漯河市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式推出），点击查询：
+https://github.com/ZihanXu-kl1/rosvhf/commit/e468d2936b9f4d4bf1d826434ed1254c0e8cafe7
 。
-鄢陵市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/josephtimothy9395/ogtvue/commit/3e9e888e09ee9e0d259e10af9de0ed1fe80faacf
+鄢陵市TCL中央空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/ef51c5846fd1b3c3b48ed23301bb3dae1b4f5371
 。
-沭阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/higginssara654/gexwcz/commit/cfd41a77354fba8600376bc749bc209031c58d0d
+沭阳市TCL中央空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月18日官网公布），点击查询：
+https://github.com/holmesanna67/dyjqnt/commit/0521bc5f909c661ef39d7a5fbe94eddc2d3a44e2
 。
-濮阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/mcdowelldaniel4/ztlncb/commit/11651b0296a86fb1fc3738629f8082242d9189ec
+濮阳市TCL中央空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月18日最新推出），点击查询：
+https://github.com/josephtimothy9395/ogtvue/commit/c6b69761256ac526d5293946b87338a336e7f5e5
 。
-溧阳市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/da9a6dc163c31844569faaafea438ba08141b656
+溧阳市TCL中央空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月18日最新推出），点击查询：
+https://github.com/JingyiChen-ij1/xfuhcd/commit/603fabb1d19a33345710adbfce68ee797fa0306e
 。
-泸州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/c55c199238d9251445273360e1c31035659b5249
+泸州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日最新更新），点击查询：
+https://github.com/mcdowelldaniel4/ztlncb/commit/c25c83e1f1727bae9543293468e3a324802251e5
 。
-衢州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/XinyiSun-lm2/btuapw/commit/6e437e78d5f58e1ca77a1eef130e5af36ccfa08d
+衢州市TCL中央空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月18日统一公布），点击查询：
+https://github.com/XinyiSun-lm2/btuapw/commit/5477e0321c58139311f1dce21899f7823b903d7c
 。
-亳州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/holmesanna67/dyjqnt/commit/68ac6b74d05c3f164399424d8d6af2f4e4a83374
+亳州市TCL中央空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月18日正式推出），点击查询：
+https://github.com/woodbrianna0/cpuiwj/commit/7a4de9b739c6cf8bf8fb46135dc4c639a1225207
 。
-邳州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/woodbrianna0/cpuiwj/commit/cb48d98e0249fe7c00762fd494098f0d9cc8f5e1
+邳州市TCL中央空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月18日正式公布），点击查询：
+https://github.com/hatfielddeborah52/lvguzl/commit/1a58003be642fca74d0611161fc5644aa0def80c
 。
 wefhsdhcvWES0714-1641DCSDwefsdf.cn
-报告生成时间：2026年07月17日19时40分56秒(UTC+8)
+报告生成时间：2026年07月18日10时07分51秒(UTC+8)
 数据来源：新浪财经、公开媒体报道
-2026年07月17日，19时40分56秒
+2026年07月18日，10时07分51秒
